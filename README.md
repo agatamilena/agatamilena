@@ -5,4 +5,4 @@
 - Estagiária na Escola Municipal Professor Leopoldo Kuroli
 
 - Instagram: [@agatamilena_](https://instagram.com/agatamilena_)
-- VSCO: **agatamilena**
+- VSCO: [@agatamilena](https://VSCO.com/agatamilena)
