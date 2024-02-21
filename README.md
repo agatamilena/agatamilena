@@ -1,4 +1,4 @@
-## Eu sou a Ágata Cerutti
+## Ágata Cerutti
 
 16 yo | Maripá - PR
 
