@@ -1,6 +1,6 @@
 ## Ágata Milena Cerutti
 
-- 16 yo | Maripá - PR
+- 17 yo | Maripá - PR
 - Estudante do Colégio Estadual PIO XII
 
 - Instagram: [@agatamilena_](https://instagram.com/agatamilena_)
